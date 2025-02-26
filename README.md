@@ -1,5 +1,9 @@
 ## Hi there 👋
+**im just a student tryin' my best to graduate**
 
+**grade 12**
+
+- from jashs
 <!--
 **ShirleyAnneJole-Jole/ShirleyAnneJole-Jole** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
